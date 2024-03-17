@@ -1,4 +1,4 @@
-第48回全日本競歩能美大会テレビ放送・ライブ放送・放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日
+第48回全日本競歩能美大会テレビ放送・ライブ放送・放送・ライブ配信・生中継・生放送 2024年03月17日
 
 <strong>🔴生中継▶ [https://sports2tv.live/all-japan-race/](https://sports2tv.live/jp-marathon3/)</strong>
 
